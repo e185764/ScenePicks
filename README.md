@@ -1,7 +1,7 @@
 デモ動画
 https://youtu.be/_7HlhpVIwYo
 
-[](@Author Futa Nakayama and Riku Nunokawa)
+[](@Author Futa Nakayama and Riku Nunokawa　and Kaito Kuroiwa)
 
 # C日程 TeamF
 
